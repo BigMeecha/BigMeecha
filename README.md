@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Micah
+- 📫 micahdonald@gmail.com
